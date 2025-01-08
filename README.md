@@ -1,1 +1,1 @@
-# pnso-Binkowski-Emil-git
+Uploading stuff thru linux the experience
